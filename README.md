@@ -2,7 +2,7 @@
 
 <div align="center">
   
-![1](https://i.imgur.com/1U1gDAj.png)
+![1](https://i.imgur.com/76tCQ3x.png)
 
 </div>
 
