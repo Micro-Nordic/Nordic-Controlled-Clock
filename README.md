@@ -18,6 +18,7 @@ a recolored version of [this](https://codepen.io/borntofrappe/pen/qGozVM)  recol
 * 🎨 ArtStation: [Abod1960](https://www.artstation.com/abod1960)
 *  ✉ Gmail: abod1960.work@gmail.com
 *   🖼 DeviantArt: [Abod1960](https://www.deviantart.com/abod1960)
+*   💬 Discord: [Abod1960#5514](https://discord.com/users/750369816279253083)<br>
   
 ## 🌟 Show your support
 
